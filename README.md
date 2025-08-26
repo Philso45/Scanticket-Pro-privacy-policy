@@ -1,0 +1,1 @@
+# Scanticket-Pro-privacy-policy
